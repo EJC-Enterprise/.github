@@ -4,10 +4,16 @@
 
 ### Tailored digital solutions for businesses.
 
-Websites · Landing Pages · Custom Web Apps · Digital Tools
-
 <br>
 
-[**ejcenterprise.mx**](https://ejcenterprise.mx)
+**Websites** &nbsp;·&nbsp; **Landing Pages** &nbsp;·&nbsp; **Custom Web Apps** &nbsp;·&nbsp; **Digital Tools**
+
+<br><br>
+
+[**Visit ejcenterprise.mx →**](https://ejcenterprise.mx)
+
+<br><br>
+
+<sub>Designing and building practical digital solutions.</sub>
 
 </div>
