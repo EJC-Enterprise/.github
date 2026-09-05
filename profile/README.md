@@ -10,10 +10,9 @@
 
 <br><br>
 
-[**Visita ejcenterprise.mx →**](https://ejcenterprise.mx)
+[**ejcenterprise.mx **](https://ejcenterprise.mx)
 
 <br><br>
 
-<sub>De la idea al despliegue.</sub>
 
 </div>
