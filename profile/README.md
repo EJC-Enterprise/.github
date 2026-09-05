@@ -2,18 +2,18 @@
 
 # EJC Enterprise
 
-### Tailored digital solutions for businesses.
+### Soluciones digitales a la medida para empresas.
 
 <br>
 
-**Websites** &nbsp;·&nbsp; **Landing Pages** &nbsp;·&nbsp; **Custom Web Apps** &nbsp;·&nbsp; **Digital Tools**
+**Sitios Web** &nbsp;·&nbsp; **Landing Pages** &nbsp;·&nbsp; **Aplicaciones Web** &nbsp;·&nbsp; **Herramientas Digitales**
 
 <br><br>
 
-[**ejcenterprise.mx →**](https://ejcenterprise.mx)
+[**Visita ejcenterprise.mx →**](https://ejcenterprise.mx)
 
 <br><br>
 
-<sub>Designing and building practical digital solutions.</sub>
+<sub>De la idea al despliegue.</sub>
 
 </div>
