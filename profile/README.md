@@ -10,7 +10,7 @@
 
 <br><br>
 
-[**Visit ejcenterprise.mx →**](https://ejcenterprise.mx)
+[** ejcenterprise.mx **](https://ejcenterprise.mx)
 
 <br><br>
 
